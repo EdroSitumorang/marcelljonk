@@ -1,5 +1,5 @@
 ### Helloo, I'm Edro Situmorang 🤗🤗
-I come from Indonesia, in Depok to be precise, 20 years old, love technology and have started coding since I was 15 years old, studying at Gunadarma University with a major in Informatics Engineering, Likes to attend webinars, CTF, or events related to technology. Likes to play games and watch Anime of course
+I come from Indonesia, in Depok to be precise, 20 years old, love technology and have started coding since I was 15 years old, studying at Gunadarma University with a major in Informatics Engineering, Likes to attend Webinar, CTF, or events related to Technology. Likes to play games and watch Anime of course
 
 ## This is about me:
 
